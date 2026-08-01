@@ -1,2 +1,2 @@
 # cautious-garbanzo
-I next Billioner just wait and watch.
+I am the next Billioner just wait and watch.
